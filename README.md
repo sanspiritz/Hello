@@ -11,4 +11,5 @@ Even though I care for my friends, I still need some time alone. so that means I
 
 I'm a frank/honest person, so if you're doing something that's bothering me, I will tell you frankly. If that makes you lose interest or get upset, just DNI in the first place.
 
-Fandoms: FNaF, TheBlackPhone, Creepypasta, IT,Amanda The Adventurer, MlP, Marble Hornets, Tangled The Series, Chucky, Coraline, Among Us, etc
+
+Fandoms: FNaF, TheBlackPhone, Creepypasta, IT,Amanda The Adventurer, MLP, Marble Hornets, Tangled The Series, Chucky, Coraline, Among Us, etc
