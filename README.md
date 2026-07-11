@@ -1,4 +1,5 @@
 How ya doing? 
+not  like everyone's gonna read this but anywayyy,
 before you int, I'd appreciate if you read the DNI list.
 DNIs : fake-depressed, posers, proshippers, darkshippers, zoophils, under 13, traumadumpers, people who make fun of other people, hypersexuals, the regular dni stuff yknow... just IWC I guesss?
 
